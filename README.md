@@ -1,0 +1,1 @@
+# SQL_Lok_Sabha_2024_Elections_Result_Analysis
